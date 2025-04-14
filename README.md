@@ -1,0 +1,1 @@
+# 1TSC-ProjetoExemplo-2025
